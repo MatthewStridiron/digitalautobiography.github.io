@@ -1,1 +1,0 @@
-# digitalautobiography.github.io
